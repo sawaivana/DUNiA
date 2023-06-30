@@ -1,2 +1,2 @@
 # DUNiA
-humanity meets Ai Warfare
+humanity meets Ai Warfare. Here's the doomsday clock
